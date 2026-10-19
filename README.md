@@ -2,13 +2,13 @@
 <article>
   <h1>Breathizen Reviews and Complaints: Is It Worth Buying?</h1>
 
-   <p>
+   <h2>
     <a href="https://breathizen.cc/"
        target="_blank"
        rel="nofollow sponsored noopener"
        style="display:inline-block;background-color:#1677ff;color:#ffffff;padding:12px 24px;text-decoration:none;border-radius:6px;font-weight:bold;">
       Visit Official Website
-    </a>
+    <h2>
   </p>
   <p>Breathizen reviews and complaints are important to consider before purchasing a product online. Consumers often want to understand whether a product delivers on its advertised promises, what other buyers think, whether the price is reasonable, and what to know before placing an order. Researching these factors can help you make a more informed decision.</p>
 
